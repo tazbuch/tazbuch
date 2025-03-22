@@ -1,6 +1,2 @@
-i know, i know. i'm cool🤷‍♂️
-
-i work on websites and just random stuff.
-(game websites, random websites, and personal bio websites!!)
-
- account made on on November 24, 2022
+![patrick](https://github.com/user-attachments/assets/1f2920cf-e3bf-489d-8312-a8391348c6df)
+                     "i want to fit in."
